@@ -19,3 +19,9 @@ Here are some ideas to get you started:
 <!-- sample -->
 
 ![imgs](IMG_2322.jpg)
+
+🇮🇳🛫🛬🇨🇦
+▪️Automobile Journalist 🕴🏼
+▪️VGPS, BPC, MACE, Humber 🏫
+▪️Get your automotive adrenaline charge right here..!!!
+◾️ Watch Videos 👇🏻
